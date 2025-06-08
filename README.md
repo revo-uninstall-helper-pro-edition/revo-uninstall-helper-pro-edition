@@ -1,0 +1,1 @@
+# revo-uninstall-helper-pro-edition
